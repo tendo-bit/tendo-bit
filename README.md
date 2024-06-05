@@ -5,8 +5,6 @@
 
 - 💬 Ask me about **anything**
 
-- 📫 How to reach me **tendo20040203@gmail.com**
-
 - ⚡ Fun fact **I think I'm happy**
 
 <h3 align="left">Connect with me:</h3>
